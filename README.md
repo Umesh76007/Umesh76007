@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Umesh76007
-- 👀 I’m interested in ... JAVA AND SQL .
+- 👀 I’m interested in ..SOFWARE STUFF....
 - 🌱 I’m currently learning CODING
 - 💞️ I’m looking to collaborate on JAVA AND SQL PROJECTS
 - 📫 How to reach me ...
